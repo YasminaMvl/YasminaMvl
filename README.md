@@ -1,7 +1,7 @@
 ### Hello ! 
 
 
-Future développeuse fullstack ✨ Javascript ✨
+Développeuse junior fullstack ✨ Javascript ✨
 
 ___________
 
