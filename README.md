@@ -1,7 +1,7 @@
 ### Hello ! 
 
 
-Développeuse front-end ✨ Javascript ✨
+Développeuse front-end ✨ Javascript ✨ j'ajoute à mes compétences le UX / UI Design et le Marketing Digital
 
 ___________
 
